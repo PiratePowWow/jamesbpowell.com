@@ -1,2 +1,0 @@
-# jamesbpowell.com
-Personal Site
